@@ -228,4 +228,4 @@ Shift 2 Unleashed is provided as a complete free version for Windows with all fe
 Don't miss out on the thrill of racing! Download Shift 2 Unleashed now and experience the excitement firsthand!
 
 ---
-**Last updated:** 2026-10-11 15:23:18 UTC
+**Last updated:** 2026-10-11 19:58:27 UTC
